@@ -1,6 +1,6 @@
 # Void Master
 
-Void Master is the #1 Free Roblox Exploit.
+Void Master is an upcoming Free Roblox Exploit!
 
 # Credits
 
